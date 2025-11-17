@@ -1,0 +1,2 @@
+# University-of-Suffolk-MSc-Computer-Science-Level-7-Module-DevOps-Assessment-
+School of Business, Arts, Social Sciences, and Technology (BASST)  University of Suffolk  MSc Computer Science  Level: 7  Module: DevOps  Assessment:    Module Leader:   Weighting in Module:   Handed out:   Deadline:   Required:  Assessment: Case Study  Dr. Godwin Dzvapatsva  Total 100% (Component 1: 40%)  October 7, 2025    
